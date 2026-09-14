@@ -27,5 +27,6 @@ I know what it is like to feel as if I have no one to help me with my problems. 
 * We have insta and TikTok!
 * Insta: the.oknook05
 * TikTok- the.book.nook03
+* our email: thebooknook2005@gmail.com
 
   # Give us a follow and check everything out!!
