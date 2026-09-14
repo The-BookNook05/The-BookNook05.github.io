@@ -1,5 +1,5 @@
 # The Book Nook
-
+# From Learning to limitless possibilities! book with me today!
 <img width="771" height="400" alt="Screen Shot 2026-09-12 at 8 07 28 PM" src="https://github.com/user-attachments/assets/1e6785c3-6a59-448e-bff7-2d137bc91624" />
 
 # Idea:
@@ -21,3 +21,10 @@ I know what it is like to feel as if I have no one to help me with my problems. 
 * Tutor session $10 per hour
 * Book Adivisory/ Critiquing $15 per hour
 * help with publishing advice/read throughs $15 per book
+
+# Ways to contact:
+* We have insta and TikTok!
+* Insta: the.oknook05
+* TikTok- the.book.nook03
+
+  # Give us a follow and check everything out!!
