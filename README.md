@@ -1,6 +1,7 @@
 # The Book Nook
 # From Learning to limitless possibilities! book with me today!
-<img width="771" height="400" alt="Screen Shot 2026-09-12 at 8 07 28 PM" src="https://github.com/user-attachments/assets/1e6785c3-6a59-448e-bff7-2d137bc91624" />
+<img width="1366" height="768" alt="THE" src="https://github.com/user-attachments/assets/79ca2722-4c72-476b-ac56-9653d5c8d0d0" />
+
 
 # Idea
 I set up meetings with those who wish to broaden their writing/reading skills. Also help aspiring writers advance their skill set and help with any revisions needed. I spend 30-60 minutes during each session either: reading through a story that's been written and give corrections/critique Help students in need of a reading/writing tutor Help with the publishing/editing process
